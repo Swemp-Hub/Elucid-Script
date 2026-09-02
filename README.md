@@ -6,4 +6,5 @@ If you wanna buy the Premium Version yes we had premium version and that is inde
 DM ME IF YOU WANT YOUR OWN CUSTOM PRIVATE CHEAT MY DISCORD USER JUST BELOW! :3 
 
 Dm me on discordUser: @swempex
+
 Join our discord Server: https://discord.gg/GQGCk3dkjE
